@@ -1,2 +1,2 @@
-# VPO-Lan-MIglic
-dfsfdasfdasfaf
+# VPO-seminarska
+Domen (Lan Miglič) ( ͡° ͜ʖ ͡°)
